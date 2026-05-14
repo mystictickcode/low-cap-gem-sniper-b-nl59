@@ -1,4 +1,4 @@
-# 
+# low cap gem sniper bot AI-powered Bot - proxy-transactions and rug-pull-detection is the best low cap gem sniper bot, featuring proxy-transactions and rug-pull-detection. Fast,
 
 
 
